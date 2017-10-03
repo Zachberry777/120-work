@@ -1,5 +1,3 @@
-Micheal Musick
-
 Zachary Hockenberry
 
 HW-2 response
